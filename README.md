@@ -5,11 +5,11 @@
 
  ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦   ︵︵                              
 -----
- ˙ ✚  HOSTS ﹕  Graye ꣑୧ Belarus  / no pony inspo!
+ ˙ ✚  HOSTS ﹕  Graye ꣑୧ Multi Co-Hosts / no pony inspo!
 
-✧ . 𓋰 .  discord - (ask 2 add) :: sohldier 𐙚     ︵︵
+✧ . 𓋰 .  discord - (ask 2 add) :: not available right now  𐙚     ︵︵
 
-ㅤ◟ ͜  ꣓   —  #   we block freely 
+ㅤ◟ ͜  ꣓   —  #   we block freely + pls spam follow! 
 
  ❀   𓎟𓎟 “ Do not pray anymore; the sky is deaf. “
 
