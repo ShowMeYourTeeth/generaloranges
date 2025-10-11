@@ -7,7 +7,7 @@
 -----
  ˙ ✚  HOSTS ﹕  Graye ꣑୧ Multi Co-Hosts / no pony inspo!
 
-✧ . 𓋰 .  discord - (ask 2 add) :: not available right now  𐙚     ︵︵
+✧ . 𓋰 .  discord - (ask 2 add) :: orangesex  𐙚  ︵︵
 
 ㅤ◟ ͜  ꣓   —  #   we block freely + pls spam follow! 
 
