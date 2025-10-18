@@ -5,7 +5,7 @@
 
  ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦   ︵︵                              
 -----
- ˙ ✚  HOSTS ﹕  Graye ꣑୧ Multi Co-Hosts / no pony inspo!
+ ˙ ✚  HOSTS + collective name ﹕  Alan or Mish  ꣑୧  / no pony inspo!
 
 ✧ . 𓋰 .  discord - (ask 2 add) :: orangesex  𐙚  ︵︵
 
